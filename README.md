@@ -1,0 +1,2 @@
+# repotest-mambos
+Test repository

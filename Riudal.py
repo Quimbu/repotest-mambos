@@ -1,3 +1,2 @@
-Dillu TKM
-Dillu yo no
-
+Dillu TKM, que homo
+Pero es bonito

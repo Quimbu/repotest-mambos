@@ -1,2 +1,3 @@
-Dillu TKM, que homo
-Paga la Hipo
+Dillu TKM
+Dillu yo no
+
